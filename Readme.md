@@ -1,0 +1,1 @@
+The mobile prices from different online stores are compared and shown here
